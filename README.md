@@ -2,7 +2,7 @@
 - 👀 I’m interested in technology
 - 🌱 I’m currently learning Master in Web Technologies and Systems Engineering
 - 💞️ I’m looking to collaborate on:  a company that values human capital
-- 📫 How to reach me: My email:mariaeduardo1092@gmail.com
+- 📫 How to reach me: mariaeduardo1092@gmail.com
 - 😄 Pronouns: She
 - ⚡ Fun fact: I'm a dreamer and passionate about learning.
 
